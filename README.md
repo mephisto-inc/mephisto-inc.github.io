@@ -1,1 +1,1 @@
-https://mephisto-inc.github.io/
+https://mephisto-inc.github.io/jogos
